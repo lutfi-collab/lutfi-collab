@@ -6,3 +6,4 @@ H.budi Wicaksono,se,mm
 jl.p.buton 8 No.164
 aren jaya
 bekasi timur
+budiwicaksono1608@gmail.com
